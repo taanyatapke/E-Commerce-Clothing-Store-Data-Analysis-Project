@@ -1,1 +1,0 @@
-# E-Commerce-Clothing-Store-Data-Analysis-Project
